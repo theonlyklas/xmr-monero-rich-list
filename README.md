@@ -1,0 +1,1 @@
+# xmr-monero-rich-list
